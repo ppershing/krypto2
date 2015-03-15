@@ -1,0 +1,1 @@
+Prestahovane na http://code.google.com/p/skripta-fmfi
